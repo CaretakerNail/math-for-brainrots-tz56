@@ -1,4 +1,4 @@
-
+elite math for brainrots Scripts offers the most advanced math for brainrots Script, with aimbot and esp. Perfect for dominating any match.
 
 
 
